@@ -7,3 +7,6 @@ hope this helps! --- Love from Nexon
 Discord - Nexonᵐᵖ⁵#3526
 
 My Site- https://nathanjs.info/
+
+
+MP5 CLAN: https://discord.gg/yYVF8nqegJ
